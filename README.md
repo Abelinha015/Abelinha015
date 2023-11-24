@@ -1,5 +1,5 @@
 - 👋 Hi,eu sou @Abelinha015.
-- 👀 sou interessada em, musica, coisas sobre empreendedorismo.
+- 👀 sou interessada em, musicas e coisas sobre empreendedorismo.
 - 🌱 atualmente estou na escola.
-- 💞️ procuro colaborar em evoluções e como pessoa evoluir,
-- 📫 ara entrar em contato comigo é por aqui mesmo.
+- 💞️ procuro colaborar em evoluções e como pessoa evoluir
+- 📫 Para entrar em contato comigo é por aqui mesmo.
